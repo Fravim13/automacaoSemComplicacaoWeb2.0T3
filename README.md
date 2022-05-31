@@ -1,1 +1,1 @@
-**Automação Sem Complicação Web 2.0
+**Eu vou ficar FERA na automação com fé em Deus
