@@ -1,1 +1,1 @@
-**Eu vou ficar FERA na automação com fé em Deus
+﻿**Eu vou ficar FERA na automação com fé em Deus
